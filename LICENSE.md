@@ -1,4 +1,4 @@
-# 
+# best nft trading bot | bundle-transactions + floor-price-tracking is the best nft trading bot, featuring bundle-transactions and floor-price-tracking. Fast, smart, and optimized
 
 
 
